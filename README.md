@@ -55,5 +55,3 @@ I still have pending tasks to make the application mobile-responsive and ensure 
 - Github - (https://github.com/NicolasEsc10)
 - Twitter - (https://twitter.com/Nicolas_Esc10)
 - Linkedin - (https://www.linkedin.com/in/nicolas-esc10/)
-
-‣条ⵥ慣捬汵瑡牯愭灰⌊愠敧挭污畣慬潴⵲灡ੰ
